@@ -1,9 +1,8 @@
 # Ir-Nap
 
 
-سریع ترین و قوری ترین پروتکل موجود در دنیا بدون حتی یک روز قطعی 
-## تحویل فوری و لحظه ای 
- حجم نا محدود تحوی آنی 
+![App Screenshot](https://filtersvip.com/gallery_gen/fcf3824e8dfa487bc1a833b08fbbcdea.png)
+
 
 ## روش های خرید 
 
