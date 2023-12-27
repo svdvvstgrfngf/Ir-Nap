@@ -1,4 +1,3 @@
 # Ir-Nap
-https://aryaad.net/
 
-
+سریع ترین سرویس موجود 
